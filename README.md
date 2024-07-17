@@ -1,1 +1,0 @@
-# badwind0824.github.io
